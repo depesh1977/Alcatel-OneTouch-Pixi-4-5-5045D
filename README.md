@@ -1,0 +1,1 @@
+# Alcatel-OneTouch-Pixi-4-5-5045D
